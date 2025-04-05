@@ -3,7 +3,8 @@ title: 那些你不得不看的影史经典（Updating)
 date: 2025-04-05 21:04:05
 tags:
 ---
-# 1.***Interstellar***  Directed by **Christopher** **Nolan**
+# 1.***Interstellar***  Directed by **Christopher** **Nolan**  
+![interstellar](D:\BlogFiles\source\images\movies_post\4898x2755-px-adventure-astronaut-fi-Futurictic-interstellar-1884445-wallhere.com.jpg)  
 ## Quote  
 >Love is the one thing we're capable of perceiving that transcends time and space.
 >
