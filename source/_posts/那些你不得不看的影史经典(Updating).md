@@ -47,8 +47,8 @@ tags:
 ## Classic Music  
 >[Keating's Triumph](https://music.apple.com/cn/album/keatings-triumph-from-dead-poets-society/1666249478?i=1666249756)  
 
-# 5.***Front of the class***  Directed by **Perter Werner**  
-![Front of the class](https://ts1.tc.mm.bing.net/th/id/R-C.bc99b0f78396fe2a9960c5f813dfaf53?rik=AdhoSPMCRgG4Cw&riu=http%3a%2f%2fvorcdn.xiaodutv.com%2f3dd16c1abb1047adc39719ef239ce4f3&ehk=6N%2b1m96WNJ2yMdKWENM9qfSuPTgR7FSZqb62wWOqUzk%3d&risl=&pid=ImgRaw&r=0)  
+# 5.***Front of the Class***  Directed by **Perter Werner**  
+![Front of the class](https://ts1.tc.mm.bing.net/th/id/R-C.ae49b1d26af2cd67195457f328f4fa5d?rik=iqDDAJigsrTLGQ&riu=http%3a%2f%2fpic.baike.soso.com%2fp%2f20140626%2f20140626103734-113508154.jpg&ehk=NIwaYP9BWxcHIq9p2cBIRyXdYOaptX%2bbreva%2bMzzZKI%3d&risl=&pid=ImgRaw&r=0)  
 ## Quote  
 >Children see the world look and adults are not the same, they will say "I do" instead of "I can't do anything", so I also like this.
 >
