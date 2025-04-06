@@ -4,7 +4,7 @@ date: 2025-04-05 21:04:05
 tags:
 ---
 # 1.***Interstellar***  Directed by **Christopher** **Nolan**  
-![interstellar](https://get.wallhere.com/photo/4898x2755-px-adventure-astronaut-fi-Futurictic-interstellar-Mystery-poster-sci-space-spaceship-1884445.jpg)  
+![interstellar](https://wallpapercave.com/wp/wp1817973.jpg)  
 ## Quote  
 >Love is the one thing we're capable of perceiving that transcends time and space.
 >
@@ -26,7 +26,7 @@ tags:
 >[Main Title](https://music.apple.com/cn/album/main-title/1443513971?i=1443513977)  
 
 # 3.***Forrest Gump***  Directed by **Robert Zemeckis**  
-![Forrest Gump](https://www.imdb.com/title/tt0109830/mediaviewer/rm81365761/?ref_=ext_shr_lnk)
+![Forrest Gump](https://pic3.zhimg.com/ff1d111d0417efb1446da9c9e882b247_r.jpg?source=1940ef5c)
 ## Quote
 >Life was like a box of chocolates, you never know what you're gonna get.
 >
